@@ -1,7 +1,7 @@
 # Emeralds
 Best Team Ever
 Best color ever
-We rock
+We rock and roll
 
 Lets do this. 
 
