@@ -1,7 +1,7 @@
 # Sapphires
 Best Team Ever
 Best color ever
-We rock
+We rock almost as much as Angel
 
 Lets do this. 
 
